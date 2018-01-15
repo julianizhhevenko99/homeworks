@@ -4,5 +4,5 @@
 * Система конторля версий  Git
 * Язык текстовой разметки Markdown
 
-# [Юля Нижевенко](mailto:juliya-ju2011@yandex.ru)
+# [Юлясик Нижевенко](mailto:juliya-ju2011@yandex.ru)
 * [telegram](https://t.me/theatlanticocean)
