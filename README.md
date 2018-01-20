@@ -8,7 +8,7 @@
 * Расписание занятий
 * Контакты
 # [Нижевенко Юля](mailto:juliya-ju2011@yandex.ru)
-![](https://pp.userapi.com/c621702/v621702489/5b603/kS7rA6aBkl0.jpg)
+![](https://pp.userapi.com/c830108/v830108443/4bf1f/wEnzQ0K4F74.jpg)
 ## 18 лет
 ### Образование:
 1. Среднее образование
